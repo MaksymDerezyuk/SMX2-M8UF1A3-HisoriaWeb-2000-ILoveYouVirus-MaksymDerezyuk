@@ -4,4 +4,6 @@ El ILoveYou Virus❤️ es el virus más famoso de la historia que logro infecta
 
 ![iloveyou](iloveyou.jpg)
 
+Las consecuencias de este virus fueron daños valorados en más de 5.500 millones de dolares! 💰
+
 
